@@ -2,4 +2,4 @@
 
 
 
-[Clik to visit website: https://github.com/rasyidah59/Nurrasyidah-CV](https://github.com/rasyidah59/Nurrasyidah-CV.git)
+[Clik to visit website:https://rasyidah59.github.io/Nurrasyidah-CV/
